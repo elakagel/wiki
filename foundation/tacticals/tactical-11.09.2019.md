@@ -9,8 +9,11 @@
 ## Team
 
 * EU Funding \(Tim\)
-* Team Retreat updates \(?\)
+* Team Retreat / Council - when, where, why? \(?\)
 * Survey \(Max\)
+* Survey \(Phoebe\)
+* Decentralized Decisionmaking \(Ela\)
+* Quick Loomio overview \(Ela\)
 
 ### Max / Strategy presentation & roles discussion
 
